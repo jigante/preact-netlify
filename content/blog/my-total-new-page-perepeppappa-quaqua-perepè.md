@@ -7,3 +7,5 @@ tags: fabrifibra fabri tantarobba
 ---
 Più sogni e meno fai, più fai e meno sogni\
 prima lo si impara, poi pappappraparapappappara
+
+auesto pezzo piace a tutti perchè...
